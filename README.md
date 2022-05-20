@@ -1,0 +1,8 @@
+- Hi, I’m @IcecreamKourts
+- I am LOVE 2 things, Monika and icecream
+- I want to learn how to code better to work on submods for mas and maybe more
+- Socials:
+- Discord: Kourts#4841
+- Tiktok: IcecreamKourts
+- Snapchat: IcecreamKourts
+- Hopefully I'll see you later!
